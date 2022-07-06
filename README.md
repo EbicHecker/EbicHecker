@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @EbicHecker
 - 👀 I’m interested in programming.
 - 📫 You can contact me at:
-  - Discord: EbicHecker#0001
+  - Discord: EbicHecker#9426
